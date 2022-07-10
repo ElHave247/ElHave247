@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://s8.gifyu.com/images/oie_oie_glittersd1acadb4a53d957a.gif" />
+</p>
 
 
 ### <p align="center">⚙️ &nbsp;My Stats</p>
